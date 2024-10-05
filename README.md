@@ -1,0 +1,1 @@
+# KaropchukDana_ZKI23-16B_var12KaropchukDana_ZKI23-16B_var12_thirdtask
